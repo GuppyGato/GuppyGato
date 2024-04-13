@@ -1,3 +1,3 @@
-- 🤍Hi, I’m @GuppyGato
+- 🤍 Hi, I’m @GuppyGato
 - 🕊️ I’m interested in Jesus Christ
 - 💌 How to reach me: Discord or Reddit
