@@ -1,3 +1,4 @@
 - 🤍 Hi, I’m @GuppyGato
 - 🕊️ I’m interested in Jesus Christ
 - 💌 I'm currently learning C++
+- 🌫️ I intend on making an OS
